@@ -24,5 +24,4 @@ Fungsi :
 2. Pendidikan organisasi dan pengembangan potensi diri bagi Mahasiswa Jurusan Informatika dan Informatika STT Ronggolawe Cepu.
 3. Penciptaan suasana yang kondusif  bagi persatuan dan kesatuan mahasiswa Informatika demi kesejahteraan bersama.
 4. Penyerap, penghimpun dan penyalur aspirasi Mahasiswa Jurusan Informatika STT Ronggolawe dalam merumuskan dan menetapkan kebijakan jurusan
-
-Pengenalan jurusan ( https://drive.google.com/drive/folders/104ThzDdZYVeUoJxkJhRcFRTz3e3Q1vCg )
+ https://drive.google.com/drive/folders/104ThzDdZYVeUoJxkJhRcFRTz3e3Q1vCg 
